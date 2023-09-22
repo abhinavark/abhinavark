@@ -5,7 +5,7 @@
  
 - 💡 Dedicated to leveraging technical skills and analytical mindset for data-driven solutions. Thrives in collaborative environments, excels in complex idea communication. Let's unlock the potential of data together!
 
-- 📫 How to reach me through my email abhinavark28@gmail.com
+- 📫 How to reach me through my email abhinavark2001@gmail.com
 
   🔗 Connect with me and let's explore the power of data!..
 
